@@ -5,7 +5,7 @@
 - 📫 How to reach me
 - Linkedin : https://www.linkedin.com/in/jude-isithor-a6b923136/
 - 😄 Pronouns: Isithor
-- ⚡ Fun fact: Life has nothing funny after 27, Just being serious after 28.
+- ⚡ Fun fact: Life 
 
 <!---
 judeisithor/judeisithor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
