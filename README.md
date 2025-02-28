@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the same.
 - 📫 How to reach me
 - Linkedin :https://www.linkedin.com/in/jude-isithor-a6b923136/
-- 😄 Pronouns: Isithor
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Life 
 
 <!---
